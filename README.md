@@ -2,7 +2,7 @@
 
 
 Nazywam się Andrzej Sroka. Z racji uprawianego zawodu i z zamiłowania na co dzień zajmuję się nauczaniem języka angielskiego.
-Jako że naprawdę lubię uczyć, udzielam się także na portalu, z którego korzystają uczniowie z problemami w nauce angielskieg. Oto on:
+Jako że naprawdę lubię uczyć, udzielam się także na portalu, z którego korzystają uczniowie z problemami w nauce "anglika". Oto on:
 
 ![isel] (http://isel.edu.pl/forum/templates/subSilver/images/logo_isel.gif)
 
