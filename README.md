@@ -22,17 +22,29 @@ Od czasu do czasu także wędkuję, i moim ulubionym gatunkom ryb poświęcam po
 
 ##Ryby
 
+###Karaś
 ![karaś] (http://tylkoryby.pl/wp-content/uploads/2011/07/karas_zloty.jpg)
 
-Karaś złocisty jest piękną i wymagającą rybą. Niezbyt duży, i nawet niezbyt waleczny, jednak ze względu na miejsce występowania i sposób żerowania jest u mnie na szczycie listy.
+Karaś złocisty jest piękną i wymagającą rybą. Niezbyt duży (sztuka powyżej 30 cm jest już uznawana za sporą), i nawet niezbyt waleczny, jednak ze względu na miejsce występowania i sposób żerowania jest u mnie na szczycie listy.
 Najczęściej łowi się go w spokojnych, zarośniętych trzciną i grążelami stawach, na przykład takich jak ten:
+
 ![stawek] (http://www.wazki.pl/wazki_katowic/park_lesny/KPL_9.jpg)
 
+Karaś chwyta przynętę bardzo ostrożnie. Wytrzymać newrowo jego podskubywanie robaka jest trudno, a przy łowieniu na znacznie łatwiej spadający z haczyka chleb jest to niemal niemożliwością. W związku z tym, zacięcie dużej, doświadczonej ryby to niełatwa sztuka.
 
+###Okoń
+![okoń] (http://wedkarstwo.klodzko.pl/mambots/editors/tinymce/gatunki_ryb/okon.jpg)
+
+
+
+
+
+
+--------
 ##Zastosowanie czasownika modalnego **would**
 
 
-Ponieważ jednak zarówno nauczanie jak produkcję tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat polskich ryb słodkowodnych.
+Ponieważ produkcję tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat zastosowania angielskiego czasownika modalnego .
 
 
 
