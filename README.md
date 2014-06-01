@@ -64,3 +64,14 @@ Ponieważ produkcję tekstów [literackich](http://www.collegecrunch.org/wp-cont
 
 [prezentacja slides](http://slides.com/tintin/gramatyka#/)
 
+
+
+
+źródła użytych w repozytorium materiałów graficznych:
+http://isel.edu.pl/forum/templates/subSilver/images/logo_isel.gif
+http://images.bestiariusz.pl/wiadomosci/5474.jpg
+http://tylkoryby.pl/wp-content/uploads/2011/07/karas_zloty.jpg
+http://www.wazki.pl/wazki_katowic/park_lesny/KPL_9.jpg
+http://wedkarstwo.klodzko.pl/mambots/editors/tinymce/gatunki_ryb/okon.jpg
+http://tralandiastatic.com/rental_images/2013_06/04/hl/bw/medium.jpeg
+http://tylkoryby.pl/wp-content/uploads/2011/07/ploc1.jpg
