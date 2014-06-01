@@ -14,7 +14,7 @@ Strona [fantastyka.pl](http://www.fantastyka.pl/), udostępniająca mnie i innym
 
 ![Nowa Fantastyka] (http://images.bestiariusz.pl/wiadomosci/5474.jpg)
 
-Wiem, wiem, goła baba zawsze wygląda mało poważnie w repozytorium tworzonym na zaliczenie przedmiotu, ale proszę spojrzeć na prawy górny róg okładki: 30 lat to nie w kij dmuchał!
+Wiem, wiem, goła baba zawsze wygląda mało poważnie w repozytorium tworzonym na zaliczenie przedmiotu, ale proszę spojrzeć na prawy górny róg okładki: 30 lat to nie w kij dmuchał! A teraz, w roku 2014 to już trzydzieści dwa lata. Pewnie więcej niż ma ta pani z okładki:)
 
 Zarówno na isel.pl jak fantastyce.pl występuję pod nickiem *tintin*.
 
@@ -47,18 +47,20 @@ Mam do niego sentyment, bo był chyba pierwszą złowioną przeze mnie rybą. Mi
 ![pomost] (http://tralandiastatic.com/rental_images/2013_06/04/hl/bw/medium.jpeg)
 
 ###Płoć
+![płoć] (http://tylkoryby.pl/wp-content/uploads/2011/07/ploc1.jpg)
+
+Z racji powszechności występowania oraz wszystkożerności, płoć nie cieszy się względami wielu wędkarzy. Niesłusznie. 
+Ta piękna ryba dorasta nawet do pół metra długości i dwóch kilo wagi. Jest, podobnie jak karaś, bardzo ostrożna i płochliwa, a walcząc po zacięciu z łatwością potrafi zerwać delikatny zestaw z cienka żyłką. 
+Na grubą natomiast nie da się jej złowić: od razu wyczuwa nienaturalne zachowanie przynęty i rezygnuje z posiłku.
 
 
 
 
 --------
-##Zastosowanie czasownika modalnego **would**
+##Zastosowanie czasownika modalnego **will/would**
 
 
-Ponieważ produkcję tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat zastosowania angielskiego czasownika modalnego .
+Ponieważ produkcję tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat zastosowania angielskiego czasownika modalnego:
 
+[prezentacja slides](http://slides.com/tintin/gramatyka#/)
 
-
-![agresja] (http://szkolnedziecko.pl/wp-content/uploads/2009/11/agresja-slowna.png)
-
-## Gatunki ryb:
