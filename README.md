@@ -18,10 +18,21 @@ Wiem, wiem, goła baba zawsze wygląda mało poważnie w repozytorium tworzonym 
 
 Zarówno na isel.pl jak fantastyce.pl występuję pod nickiem *tintin*.
 
-#Zastosowanie czasownika modalnego **would**
+Od czasu do czasu także wędkuję, i moim ulubionym gatunkom ryb poświęcam poniższy wpis:
+
+##Ryby
+
+![karaś] (http://tylkoryby.pl/wp-content/uploads/2011/07/karas_zloty.jpg)
+
+Karaś złocisty jest piękną i wymagającą rybą. Niezbyt duży, i nawet niezbyt waleczny, jednak ze względu na miejsce występowania i sposób żerowania jest u mnie na szczycie listy.
+Najczęściej łowi się go w spokojnych, zarośniętych trzciną i grążelami stawach, na przykład takich jak ten:
+![stawek] (http://www.wazki.pl/wazki_katowic/park_lesny/KPL_9.jpg)
 
 
-Ponieważ jednak zarówno nauczanie jak produkcja tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat polskich ryb słodkowodnych.
+##Zastosowanie czasownika modalnego **would**
+
+
+Ponieważ jednak zarówno nauczanie jak produkcję tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat polskich ryb słodkowodnych.
 
 
 
