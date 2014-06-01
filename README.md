@@ -30,12 +30,23 @@ Najczęściej łowi się go w spokojnych, zarośniętych trzciną i grążelami 
 
 ![stawek] (http://www.wazki.pl/wazki_katowic/park_lesny/KPL_9.jpg)
 
-Karaś chwyta przynętę bardzo ostrożnie. Wytrzymać newrowo jego podskubywanie robaka jest trudno, a przy łowieniu na znacznie łatwiej spadający z haczyka chleb jest to niemal niemożliwością. W związku z tym, zacięcie dużej, doświadczonej ryby to niełatwa sztuka.
+Karaś chwyta przynętę bardzo ostrożnie. Wytrzymać nerwowo jego podskubywanie robaka jest trudno, a przy łowieniu na znacznie łatwiej spadający z haczyka chleb jest to niemal niemożliwością. W związku z tym, zacięcie dużej, doświadczonej ryby to niełatwa sztuka.
 
 ###Okoń
 ![okoń] (http://wedkarstwo.klodzko.pl/mambots/editors/tinymce/gatunki_ryb/okon.jpg)
 
+Okoń pod właściwie każdym względem jest przeciwieństwem swojego poprzednika na tej liście:
 
+- jest drapieżnikiem
+- na wędce walczy jak sam szatan
+- jego mięso jest przepyszne
+- nawet duże sztuki przynętę chwytają od razu
+
+Mam do niego sentyment, bo był chyba pierwszą złowioną przeze mnie rybą. Miałem może ze sześć lat i mój Tato uczył mnie wędkowania na tym pomoście w Czarlinie na Kaszubach:
+
+![pomost] (http://tralandiastatic.com/rental_images/2013_06/04/hl/bw/medium.jpeg)
+
+###Płoć
 
 
 
