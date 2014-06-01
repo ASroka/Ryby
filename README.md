@@ -2,7 +2,8 @@
 
 
 Nazywam się Andrzej Sroka. Z racji uprawianego zawodu i z zamiłowania na co dzień zajmuję się nauczaniem języka angielskiego.
-Jako że naprawdę lubię uczyć, udzielam się także na portalu, z którego korzystają uczniowie z problemami w nauce "anglika". Oto on:
+Jako że naprawdę lubię uczyć, udzielam się także na portalu, z którego korzystają uczniowie z problemami w nauce "anglika". 
+Oto on:
 
 ![isel] (http://isel.edu.pl/forum/templates/subSilver/images/logo_isel.gif)
 
@@ -17,9 +18,12 @@ Wiem, wiem, goła baba zawsze wygląda mało poważnie w repozytorium tworzonym 
 
 Zarówno na isel.pl jak fantastyce.pl występuję pod nickiem *tintin*.
 
+#Zastosowanie czasownika modalnego **would**
+
+
 Ponieważ jednak zarówno nauczanie jak produkcja tekstów [literackich](http://www.collegecrunch.org/wp-content/uploads/2008/10/ape-keyboard1.jpg) trudno mi ująć w atrakcyjną formę obrazkowo-pisaną, moją prezentację pozwoliłem sobie zrobić na temat polskich ryb słodkowodnych.
 
-#Wybrane ryby słodkowodne Polski
+
 
 ![agresja] (http://szkolnedziecko.pl/wp-content/uploads/2009/11/agresja-slowna.png)
 
